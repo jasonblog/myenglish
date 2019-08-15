@@ -7,3 +7,7 @@
 
 - 2019多益參考書分析推薦 竟然買8000塊!
     - https://www.youtube.com/watch?v=CQZWcPzDLcg
+    
+
+- 整理 2018年  PTT多益版900分高手  都在看的書
+    - http://biojoanna.pixnet.net/blog/post/163615113
